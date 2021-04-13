@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Taufiq
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate with no one
 - 📫 How to reach me do not try to reach me
 - 
 
